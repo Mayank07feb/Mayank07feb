@@ -81,8 +81,7 @@ If you're interested in collaborating on a project or discussing how I can contr
 
 ## 🌐 Socials
 
-- **Instagram:** [Your Instagram Link]
-- **LinkedIn:** [Your LinkedIn Link]
+- **LinkedIn:** -- https://www.linkedin.com/in/mayank-sharma-340383a1/
 
 ---
 
